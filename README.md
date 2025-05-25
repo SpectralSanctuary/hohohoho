@@ -1,1 +1,1 @@
-Nothing to see here, it's just an absolute useless respitory.
+Nothing to see here, it's just a useless respiratory.
